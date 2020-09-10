@@ -1,4 +1,10 @@
-### Hi there 👋
+### 💬 HI
+
+- THE WORLD IS YOURS
+- NO LIMITS NO RULES
+- JUST DO WHAT U WANT
+
+🌱 HOPE U GUYS HAVE A GOOD DAY 
 
 <!--
 **teamwang-design/teamwang-design** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
